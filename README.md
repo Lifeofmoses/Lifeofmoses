@@ -7,5 +7,6 @@
 <!---
 Lifeofmoses/Lifeofmoses is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->Yeah Yeah do not for get ti followed me on mi IG @i_m_monet
-____if you are a musician let all collabo here, You're welcome for coming 
+--->Yeah Yeah do not forget to followed me up on my IG @i_m_monet
+____if you are a musician let all collabo here, You're welcome for coming 😊😄
+
